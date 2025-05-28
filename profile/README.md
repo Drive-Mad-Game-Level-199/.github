@@ -4,6 +4,8 @@
 
 **Drive Mad** is an *epic, physics-based* car simulator that turns every road into a dangerous thrill ride. Your mission? Drive fast, stay balanced, and avoid flipping your car – sounds easy? Think again!
 
+## <a href="https://1kb.link/Gk5Qaw">👉 Play Drive Mad Unblocked Games NOW 👈</a>
+
 In this **unblocked** and **offline** game, every level is a unique challenge filled with **extreme ramps**, **deadly jumps**, and **unstoppable obstacles** that test your driving skills to the limit.
 
 ---
